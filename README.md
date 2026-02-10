@@ -1,0 +1,2 @@
+# Syntecxhub_EncryptedChat_Ngong_Kurt-ty
+Syntecxhub_EncryptedChat_Ngong_Kurt-Ty
